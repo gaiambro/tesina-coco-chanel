@@ -145,7 +145,7 @@ In qualunque caso si avanza con un'altra separazione di circa 1 cm in linea oriz
 
 In questo taglio è importante distribuire i capelli in caduta naturale, senza esercitare troppa tensione soprattutto nella zona di corona perché i capelli da tagliare sin sovrappongono a quelli già tagliati. I capelli della parte anteriore si andranno a tagliare dalla taccaura della tempia verso il centro della fronte. A taglio finito si ricontrolla la parte frontale e nel caso fosse necessario si corregge leggermente la linea del taglio per renderla omogenea.
 
-# Relazione sul Caschetto classic
+# Caschetto classico
 
 Il caschetto classico è un taglio di capelli, iconico e intramontabile, che ha avuto origine nel primo decennio del XX secolo. È caratterizzato da una lunghezza media che arriva approssimativamente alle spalle, con una linea retta che segue la mascella. Questo taglio di capelli è stato un simbolo di eleganza e stile per molti decenni e continua ad essere una scelta popolare tra le donne di tutto il mondo.
 
@@ -190,8 +190,6 @@ Una delle caratteristiche distintive di questo caschetto è la sua capacità di 
 
 Inoltre, può essere abbinato a diverse frange. Può essere aggiunta una frangia laterale lunga o una spettinata per un tocco di originalità. Ciò permette di adattare il taglio alle proprie caratteristiche facciali.
 
-## Vantaggi
-
 Il caschetto graduato offre diversi vantaggi che lo rendono una scelta popolare:
 
 ** movimento**: Il caschetto graduato offre una maggiore effetto mosso rispetto al caschetto classico. La differenza di lunghezza dei capelli crea un aspetto dinamico che può rendere i capelli più voluminosi.
@@ -208,7 +206,7 @@ il caschetto asimmetrico può essere arricchito con elementi aggiuntivi, come un
 
 Il caschetto asimmetrico offre diversi vantaggi che lo rendono una scelta audace:
 
- **Originalità**: Questo taglio di capelli si distingue per la sua forma asimmetrica, che lo rende originale e fuori dagli schemi. È una scelta ideale per coloro e attirare l'attenzione.
+**Originalità**: Questo taglio di capelli si distingue per la sua forma asimmetrica, che lo rende originale e fuori dagli schemi. È una scelta ideale per coloro e attirare l'attenzione.
 
 # Caschetto con frangia
 
@@ -219,8 +217,6 @@ Il caschetto con frangia si caratterizza per una linea retta e uniforme sulla pa
 La frangia può essere pettinata in diverse direzioni per creare un aspetto diverso ogni giorno. Può essere spostata lateralmente per un look più sofisticato, separata in mezzo per un look alla moda, oppure spettinata per un aspetto casual e rilassato.
 
 La frangia può essere modellata in varie forme, come una frangia lunga e spettinata o una frangia dritta e definita, a seconda del gusto individuale.
-
-## Vantaggi
 
 Il caschetto con frangia offre diversi vantaggi che lo rendono un taglio di capelli molto apprezzato:
 
@@ -285,28 +281,29 @@ Il flip bob offre diversi vantaggi che lo rendono una scelta popolare:
 
 **Stile moderno**: Il flip bob è un taglio di capelli moderno e di tendenza. Ideale per coloro che esprimono la propria individualità e amano seguire le tendenze.
 
-# Relazione sul Pixie Cut
+# Pixie Cut
 
-Il pixie cut è un taglio di capelli corto e audace che offre un aspetto moderno e di tendenza. Caratterizzato da una lunghezza molto corta, il pixie cut è diventato un'icona di stile per le donne che desiderano sfoggiare un look audace e dal carattere deciso.
+Il pixie cut (tradotto taglio folletto) è un taglio di capelli corto e audace. Questo è diventato popolare negli anni '50 e da allora è rimasto un'acconciatura classica e senza tempo. Caratterizzato da una lunghezza molto corta, il pixie cut è diventato un'icona per chi desidera sfoggiare un look audace e deciso.
 
-## Descrizione
+Esso si distingue per la sua lunghezza molto corta sui lati e sulla nuca, mentre la parte superiore dei capelli può essere leggermente più lunga, in base al risultato finale.
 
-Il pixie cut si distingue per una lunghezza molto corta sui lati e sulla nuca, mentre la parte superiore dei capelli può essere leggermente più lunga. Questo taglio di capelli evidenzia le caratteristiche del viso e mette in risalto le linee del collo. Il pixie cut può variare in termini di lunghezza e texture dei capelli, offrendo molte possibilità di personalizzazione.
-
-## Stile e acconciatura
-
-Una delle caratteristiche distintive del pixie cut è la sua versatilità in termini di stili e acconciature. Nonostante la sua lunghezza ridotta, il pixie cut offre molte opzioni di styling. Può essere pettinato in modo liscio e ordinato per un aspetto elegante e sofisticato. Allo stesso tempo, può essere arricchito con prodotti per lo styling per creare un look più sbarazzino e spettinato.
-
-Inoltre, il pixie cut può essere personalizzato con diverse frange. Una frangia lunga e spettinata può essere aggiunta per un tocco di originalità, o può essere evitata per un aspetto più minimalista. Questo permette di adattare il taglio alle proprie caratteristiche facciali e al proprio stile preferito.
-
-## Vantaggi
+Per lo styling anche se il taglio è molto corto si può optare per un liscio alegante oppure per un look sbarazziono si può arricchire in diversi modi.
+Per diversificare il look si opta per delle frange. Una frangia lunga e spettinata può essere aggiunta per un tocco di originalità, o può essere evitata per un aspetto più minimalista.
 
 Il pixie cut offre diversi vantaggi che lo rendono una scelta audace:
 
-1. **Eleganza e praticità**: Il pixie cut offre un look elegante e allo stesso tempo pratico. È un taglio di capelli che richiede poca manutenzione e poco tempo per lo styling quotidiano.
+**Eleganza e praticità**: Il pixie cut offre un look elegante e allo stesso tempo pratico. 
 
-2. **Esaltazione delle caratteristiche facciali**: Il pixie cut mette in risalto le caratteristiche del viso, come gli occhi, gli zigomi e la struttura ossea. È un taglio di capelli che può migliorare la simmetria del viso e dare un aspetto più scolpito.
+**Esaltazione delle caratteristiche facciali**: Il pixie cut mette in risalto le caratteristiche del viso, come gli occhi, gli zigomi e la struttura ossea. Il taglio può dare un aspetto più scolpito.
 
-3. **Espressione di personalità**: Il pixie cut è un taglio di capelli audace che permette alle donne di esprimere la propria individualità e sicurezza. È un'opportunità per rompere le convenzioni e abbracciare uno stile unico.
+**Espressione di personalità**: è ideale per che permette di esprimere la propria individualità e sicurezza.
 
-4. **Semplicità ed eleganza**: Nonostante la sua lunghezza ridotta, il pixie cut conferisce un aspetto elegante e sofisticato. È adatto a diverse occasioni, sia casual che formali, e può essere facilmente personalizzato per adattarsi alle preferenze individuali.
+**Semplicità ed eleganza**: Esso conferisce un aspetto elegante e sofisticato, adatto per diverse occasioni.
+
+# la ripresa dopo la grande guerra 
+
+Quando decise di tornare dalla Svizzera in Francia, la situazione era ben diversa da come l’aveva lasciata. Dior aveva conquistato il cuore di tutti i cittadini; con la sua nuova collezione che rappresentava i canoni di bellezza di un tempo. Chanel allora decise di lanciare la sua nuova collezione, per essa sfilarono 30 modelle davanti a fotografi e giornalisti; ma questa collezione non fu molto apprezzata, perché rappresentava “i soliti” capi che chanel era d’abitudine proporre. Però la popolarità la raggiuse lo stesso, le voci partirono dall’America e fecero il giro di tutto il mondo.
+
+Dopo 10 anni aprì un’altra boutique dedicandosi solo all’alta moda, concentrandosi principalmente però in altri ambiti: per esempio sulla bigiotteria e sul suo profumo. 
+
+Godè di questo successo per altri 20 anni, fino a quando morì nel 1971 il 10 gennaio in una camera del Hotel Ritz a Parigi, non dimenticandosi peò del suo amore per la Svizzera decise di essere sepolta li. 
