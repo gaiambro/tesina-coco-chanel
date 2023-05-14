@@ -145,7 +145,7 @@ In qualunque caso si avanza con un'altra separazione di circa 1 cm in linea oriz
 
 In questo taglio è importante distribuire i capelli in caduta naturale, senza esercitare troppa tensione soprattutto nella zona di corona perché i capelli da tagliare sin sovrappongono a quelli già tagliati. I capelli della parte anteriore si andranno a tagliare dalla taccaura della tempia verso il centro della fronte. A taglio finito si ricontrolla la parte frontale e nel caso fosse necessario si corregge leggermente la linea del taglio per renderla omogenea.
 
-# Relazione sul Caschetto classico
+# Relazione sul Caschetto classic
 
 Il caschetto classico è un taglio di capelli, iconico e intramontabile, che ha avuto origine nel primo decennio del XX secolo. È caratterizzato da una lunghezza media che arriva approssimativamente alle spalle, con una linea retta che segue la mascella. Questo taglio di capelli è stato un simbolo di eleganza e stile per molti decenni e continua ad essere una scelta popolare tra le donne di tutto il mondo.
 
@@ -168,21 +168,15 @@ Il long bob (lob) è una variante moderna della sua versione clasica. Questo tag
 
 A differenza del caschetto classico, che si ferma appena sotto la mascella, quello allungato si estende ulteriormente per creare una linea più lunga e sfumata. Questa versione è generalmente caratterizzata da una linea netta e retta sulla parte posteriore, con i capelli che si allungano gradualmente verso il davanti.
 
-## Stile e personalizzazione
-
 Una delle grandi caratteristiche del caschetto allungato è la sua versatilità e possibilità di personalizzazione. Questo taglio può essere adattato a diverse forme del viso e tipologie di capelli. Ad esempio, le donne con capelli lisci possono optare per una linea più netta e precisa, mentre quelle con capelli ondulati o ricci possono creare un aspetto più naturale e morbido.
 
 Inoltre, il caschetto allungato può essere personalizzato con diversi stili e acconciature. Può essere arricchito con frange laterali, frange lunghe o spettinate per aggiungere un tocco di originalità. È possibile creare onde morbide o ricci definiti per un look romantico, o mantenerlo liscio e elegante per un aspetto più formale.
-
-## Vantaggi
 
 Il caschetto allungato offre diversi vantaggi per chi lo adotta:
 
 1. **Modernità**: Questo taglio di capelli è considerato moderno ed alla moda. È una scelta ideale per coloro che vogliono essere al passo con le ultime tendenze e dare un tocco di freschezza al proprio look.
 
-2. **Versatilità**: Il caschetto allungato può essere personalizzato in base alle preferenze individuali. È possibile sperimentare con diversi stili, lunghezze e texture per ottenere un look unico e adatto alla propria personalità.
-
-3. **Facilità di gestione**: Nonostante la sua lunghezza leggermente maggiore rispetto al caschetto classico, il caschetto allungato rimane relativamente facile da gestire. Richiede meno tempo per lo styling rispetto a tagli di capelli più lunghi e può essere pettinato velocemente per un aspetto curato.
+4. **Facilità di gestione**: Nonostante la sua lunghezza leggermente maggiore rispetto al caschetto classico, il caschetto allungato rimane relativamente facile da gestire. Richiede meno tempo per lo styling rispetto a tagli di capelli più lunghi e può essere pettinato velocemente per un aspetto curato.
 
 4. **Adattabilità**: Il caschetto allungato si adatta a diverse occasioni, sia casual che formali. Può essere indossato quotidianamente per una giornata in ufficio o acconciato in modo più sofisticato per un evento speciale.
 
